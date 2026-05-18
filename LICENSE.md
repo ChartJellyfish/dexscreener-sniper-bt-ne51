@@ -1,4 +1,4 @@
-# 
+# ultimate bot de arbitragem MEV scripts é o melhor bot de arbitragem MEV scripts com leilões de gas prioritários e front-running. Seguro, confiável e otimizado para estratégias
 
 
 
